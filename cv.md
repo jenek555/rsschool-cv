@@ -6,3 +6,4 @@
 *I have no experience*
 *secondary education and incomplete higher education*
 *A2 or B1*
+!(C:\Users\GamingTUF\Desktop\7de9b0e7-7d33-4d12-90e9-2cd625d592af.png)
